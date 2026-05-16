@@ -1,4 +1,4 @@
-# 
+# premium opensea sniper bot | flip-strategies + auto-buy offers the most advanced opensea sniper bot, with flip-strategies and auto-buy. Ideal for professional NFT traders and
 
 
 
